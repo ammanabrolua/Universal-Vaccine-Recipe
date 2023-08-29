@@ -2,7 +2,7 @@
 
 1. Take a commune with suffering pangs of high ranks diseases might prevail.
 2. Create babies that are of high in number to count.
-3. Select and attract attent of a favourable diseased bowine.
+3. Select and attract attent of a favourable diseased bovine.
 (Make sure to have a creative and uniquel approved majorly upbringing life)
 4. The psyche of the cow is intended to be mature and versatile.
 5. Perform advents that outline the same in the uniqueness of events that life.
@@ -10,7 +10,7 @@
 7. Finally after thrice or more cyclic repeats, make sure to prepare a decent glass of dose that be called Universal-Vaccine to derive from the recipe to follow as these: milk with prepared caramel on high heat, wine with added psycho-pathogen of all nature with moderate, ease and great harm, lower the harmness by heating the milk mix on high heat for minutes to favor, pour the mix into a glass to consume.
 8. Wait for 6 hours before you drink or eat even water or bread.
 9. Test your dose by taking in some pathogen and wait for it to exit in stool or pee.
-10. Test if your skin is as leathery as bowine should.
+10. Test if your skin is as leathery as bovine should.
 11. (Communal hazards, humiliation, rape, violence, ghost encounters, anxiety, depression, begging of sorts, loss of wealth, depression)
 12. The beneficiaries are many in number and count.
 13. The recipe conductor owner of responsibilty preferrably is singular in individual.
